@@ -5,6 +5,6 @@ Add your name to this membership list:
 - Shaun Akhtar
 - Joe Montibello was here!
 - Maninder Rakhra
-- Becky too!
+- Becky Torrey
 - Mark Mounts
 - Barb Bushor 
